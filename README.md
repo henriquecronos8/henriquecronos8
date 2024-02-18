@@ -4,4 +4,4 @@
 - 💞️ I try to collaborate on anything
 - 📫 How to contact me: on my discord, my nickname is: henrique_cronos
 - 😄 Pronouns: he/his/she/her
-- ⚡ Fun fact:I like math :)
+- ⚡ Fun fact:Im braziliam!
